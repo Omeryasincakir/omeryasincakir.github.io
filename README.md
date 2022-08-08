@@ -1,0 +1,1 @@
+# omeryasincakir.github.io
